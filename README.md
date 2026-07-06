@@ -2,4 +2,4 @@
 
 ## Project Explaination Video
 
-[My Video Link](https://drive.google.com/drive/folders/15hB_rBdNBcs0Pi8cd8DWE9dO-hrwnwvy?usp=sharing)
+[My Video Link](https://drive.google.com/drive/folders/15hB_rBdNBcs0Pi8cd8DWE9dO-hrwnwvy)
